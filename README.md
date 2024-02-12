@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @G-S-Charan
 - 👀 I’m interested in computers.
-- 🌱 I’m currently learning more than I can handle.
+- 🌱 I’m currently learning more than what I can handle. XD
 - 💞️ I’m looking to collaborate on anything if possible.
-- 📫 How to reach me is through github
+- 📫 How to reach me is through github,twitter,Instagram.
 - 😄 Pronouns: He
 - ⚡ Fun fact: 4:20 is as specific as 4:00. 
 
